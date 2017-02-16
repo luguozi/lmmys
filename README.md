@@ -1,5 +1,4 @@
-# lmmys撒的asdfhgavda 'badj
+写在前面的
+专业的程序员要保持坚持的学习，知识学不完。目前我还是一个还没入门的程序员，我希望自己用一辈子的时间学习技术！
 
-adsbhjavshsjdvadsasd
-dasdasda dad
-adsasddsaaxnjkbkaddgiuda
+
